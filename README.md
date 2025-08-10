@@ -225,3 +225,99 @@ Topic: Universal Human Values – 2
 -Harmony in Living – Emphasized peaceful coexistence with others and nature.
 -Strong Relationships – Valued trust, respect, and empathy in human connections.
 -Purpose of Life – Encouraged self-reflection to discover life’s deeper meaning and contribute positively to society.
+
+# 2:30 – 3:30 PM:
+Speaker: Seniors of the Cosmic Club
+Topic: Discovering Hidden Talents.
+1.Self-Exploration – Try new activities, hobbies, and challenges to uncover abilities you didn’t know you had.
+2.Observation – Pay attention to what you enjoy and where you excel naturally.
+3.Feedback – Listen to friends, mentors, and peers who notice your strengths.
+4.Practice & Patience – Talents grow with consistent effort and time.
+5.Overcoming Fear – Step outside comfort zones to reveal hidden skills.
+6.Community Support – Surround yourself with encouraging people who inspire growth.
+7.Purpose & Passion – Focus on talents that bring joy and meaning.
+.Conclusion:
+Everyone has undiscovered potential—stay curious, stay open, and you might surprise yourself.
+# Day fifth complete "Thankyou"
+
+# Day-6 (5 August 2025)
+Good morning 🙏
+
+-No classes, no lectures — just ID card day.
+-We submitted our Aadhaar cards, got our photos clicked, and took one step closer to officially being part of the college.
+# Day sixth completed " Thankyou"
+
+# Day-7 (6 August 2025)
+Good morning 🙏
+
+-09:30AM to 10:30AM (Chemistry Lecture)
+.We had our Chemistry class with Karan Bharia Sir.
+.It wasn’t just a good class — it was really good.
+.Sir explained everything clearly, and the session felt engaging from start to finish.
+.sir also explain the chemistry syllabus and start the chapter water chemistry and sir also give the some and check out all student copy.
+
+# 10:30 – 11:30AM (English Lecture)
+-We had our English class with Professor Nisha Ma’am.
+-She gave her introduction, then asked each of us to introduce ourselves as well as.
+-She began by interacting with us and explained that we will be focusing on learning and developing our communication skills.
+
+# 11:00 - 12:30 (Break) 
+Lunch
+
+# 12:30 – 2:30 PM)
+*Speaker*: Dr. Arvind Dhingra (Director, STEP & Incharge, TAC).
+Topic: College Pride & Motivation.
+message:-When students take pride in their college and stay motivated, they not only achieve personal success but also elevate the institution’s name for future generations.
+-His message was work hard, stay focused, and success will follow.
+
+# (2:00 – 4:00 PM)
+*Speaker*: Dr. Lakhbir Singh Khanna (Incharge, CMI).
+Topic: Learning Opportunities, Digital Skills & Student Support.
+Message: Learning Opportunities, Digital Skills & Student Support.
+-SWAYAM Platform: Offers free online courses from top institutions, including IIT professors.
+-Direct Learning: Students can gain knowledge from subject experts without geographical barriers.
+-Skill Development: Courses include both academic and digital skills for career growth.
+-Student Support: Flexible learning, self-paced modules, and certificates to enhance employability.
+# (4:00 PM)
+*Speaker*: Jasvir Singh (Director & Resource Person, STEM)
+Topic: Motivation & Closing Note
+Message:- Motivation:- The internal drive or external push to initiate, sustain, and direct actions toward goals.
+-Closing Note.
+. A final statement that summarizes the discussion, reinforces the key message, and inspires action.
+# Day seventh complete "Thankyou"
+
+# Day-8 (7 August 2025)
+# (09:30 – 12:30 PM)
+*Speaker*: Amit Karma (Incharge, DMC)
+Topic: Introduction to Seniors & DMC Opportunities
+Message: sir made us meet our talented seniors, who are amazing video editors and creative content makers.
+-Sir, we met Navjot Bhaiya and Saumya Didi who have been part of DMC.
+-sir also explain DMC parts like:-
+1. Growing Online Presence – Businesses are moving online, creating demand for digital marketing services.
+2. Social Media Growth – Platforms like Instagram, TikTok, and LinkedIn offer marketing opportunities.
+3. Content Marketing – Demand for engaging blogs, videos, and podcasts is rising. etc..
+
+# *Speaker*: Randhir Singh
+Topic: How Exams Will Be Conducted
+-sir explained everything about exams in a very clear way.
+-He told us how to pay the exam fees and even where to get the Wi-Fi password. Our internal exam will be of 40 marks, and we need at least 16 to pass. The external exam will be of 60 marks, and we must score at least 24 to pass.There will also be a 50-mark lab or practical exam.
+-sir also told us 75% attendance is compulsory for appear fot the eaxam.
+
+# 12:30 to 01:30 PM
+Break
+
+# 01:30 TO 02:30 PM (BEEE Lecture)
+-Lecture of BEEE of Prof. Harminder kaur in ME Seminar Hall and which was very  amazing.
+-ma'am told  about syllabus of BEEE (Basic Electrical and Electronics Engineering).
+- she start first chapter of BEEE and she tought (DC Circuit).
+- It wasn’t just a good class — it was really good.
+
+# 02:30 to 03:30 PM
+-We interact with our senoirs and this interaction session was really good.
+-He gave his introduction, then asked each of us to introduce ourselves as well as.
+# Day eight complete "Thankyou"
+
+# Day-9 (8 August 2025)
+-09:00 to 10:30 AM
+*Speaker*: Mrs. Shaffy Makkar
+Topic: Millet Super Food
