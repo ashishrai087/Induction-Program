@@ -321,3 +321,27 @@ Break
 -09:00 to 10:30 AM
 *Speaker*: Mrs. Shaffy Makkar
 Topic: Millet Super Food.
+-Ma'am explain the Millet super food.
+-Millet food :- Small-seeded grasses grown as cereal crops, highly nutritious and gluten-free.
+-ma'am also explain type of millet food.
+-Nutritional Benefits:
+.Rich in fiber, protein, iron, calcium, magnesium.
+.Low glycemic index → helps manage blood sugar.
+.Gluten-free → suitable for celiac patients.
+.Good for digestion and heart health.
+-Common Millet Foods:
+.Millet porridge, roti, dosa, upma, idli, pulao.
+.Millet flour for bread, cakes, cookies.
+-Health Benefits:
+.Aids weight loss.
+.Improves bone strength (esp. ragi).
+.Boosts immunity.
+.Supports gut health.
+
+# 10:30 to 12:30 PM (Maths lecture)
+- It was a amazing session by Prof. Gagandeep Kaur Lotey in TCC Seminar Hall.
+- ma'am also discuss the syallbus pattern and tought the numbers system with life related example.
+- It wasn't just a good class- it was really,really good. ##End
+# End 
+Thankyou ❤😊👍
+-
